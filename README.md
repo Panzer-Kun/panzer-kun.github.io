@@ -9,10 +9,11 @@ As of now, I am Currently doing my Internship as Information Technology Trainee 
 
 Feel free message me for any inquiries, questions or career opportunities
 
-Thank you and have a nice day
+Thank you and have a nice day!
 
 ## Contact Details
-You can reach out to me via:  
+You can reach out to me via:
+
 Gmail : i602156@gmail.com
 
 Instagram :[@muhd.irfnnn](https://www.instagram.com/muhd.irfnnn)
