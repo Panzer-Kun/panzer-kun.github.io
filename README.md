@@ -23,5 +23,5 @@ Instagram :[@muhd.irfnnn](https://www.instagram.com/muhd.irfnnn)
 
 LinkedIn : [Muhammad Irfan's LinkedIn](https://www.linkedin.com/in/muhammad-irfan-zulkifli-341923205/)
 
-My Portfolio : [My Wedding Photographer Portfolio!](https://i602156.wixsite.com/irfanz-s-portfolio)
+My Portfolio : [My Photographer Portfolio!](https://i602156.wixsite.com/irfanz-s-portfolio)
 
