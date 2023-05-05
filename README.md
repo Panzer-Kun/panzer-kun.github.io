@@ -9,7 +9,7 @@ As of now, I am Currently working as Information Technology(IT) Assistant - Cont
 
 Feel free message me for any inquiries, questions or career opportunities
 
-My Resume : [Resume_MuhammadIrfanZulkifli.pdf](https://github.com/Panzer-Kun/panzer-kun.github.io/files/10555787/Resume_MuhammadIrfanZulkifli.pdf)
+My Resume : [Resume_MuhammadIrfanZulkifli.pdf](https://github.com/Panzer-Kun/panzer-kun.github.io/blob/main/Resume_MuhammadIrfanZulkifli.pdf)
 
 
 Thank you and have a nice day!
