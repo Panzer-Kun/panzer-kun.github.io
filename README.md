@@ -5,11 +5,11 @@ Hello ! My name is Muhammad Irfan Bin Zulkifli I am currently 24 Years Old, Fina
 
 I am an avid & enthusiastic person that are always looking forward to try new things and explore new opportunities and skills + a Tech Guy loving all things technologies from gadgets, computers and smartphones.
 
-As of now, I am Currently doing my Internship as Information Technology Trainee at Four Seasons Resort Langkawi, MALAYSIA until 13 April 2023 and I am looking forward for permanent entry-level career position in Information Technology Department in hotels and resorts whether locally( in Malaysia ) or globally. 
+As of now, I am Currently working as Information Technology(IT) Assistant - Contract at Four Seasons Resort Langkawi, MALAYSIA until 13 July 2023 and I am looking forward for permanent entry-level career position in Information Technology Department in hotels and resorts whether locally( in Malaysia ) or globally. 
 
 Feel free message me for any inquiries, questions or career opportunities
 
-My Resume : [Resume_MuhammadIrfanZulkifli_locationcensored.pdf](https://github.com/Panzer-Kun/panzer-kun.github.io/files/10555787/Resume_MuhammadIrfanZulkifli_locationcensored.pdf)
+My Resume : [Resume_MuhammadIrfanZulkifli.pdf](https://github.com/Panzer-Kun/panzer-kun.github.io/files/10555787/Resume_MuhammadIrfanZulkifli.pdf)
 
 
 Thank you and have a nice day!
